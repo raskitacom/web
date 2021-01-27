@@ -1,6 +1,6 @@
 # paket wisata jogja
 
-[paket wisata jogja murah](https://raskita.com/)  Panitia festival salju Sapporo yang terkenal di Jepang dipaksa untuk mengangkut bubuk ekstra dalam jumlah yang belum pernah terjadi sebelumnya untuk membangun patung tanda tangan mereka setelah musim dingin yang hangat tanpa musim.
+[Paket wisata jogja murah](https://panwis.com)  Panitia festival salju Sapporo yang terkenal di Jepang dipaksa untuk mengangkut bubuk ekstra dalam jumlah yang belum pernah terjadi sebelumnya untuk membangun patung tanda tangan mereka setelah musim dingin yang hangat tanpa musim.
 
 Festival, yang dibuka dalam tiga minggu di ibu kota Hokkaido di Jepang utara, merupakan daya tarik utama bagi kawasan ini, menarik lebih dari 2,7 juta pengunjung tahun lalu [paket tour jogja](https://www.fontshop.com/people/raskita-com).
 
